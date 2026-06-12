@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-BAGD961222HMNRLG05
+BAGD961222HMNRLG05
